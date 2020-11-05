@@ -1,0 +1,1 @@
+First you have to boil some hot water. Then you have the put in pasta. When you waited enough you have to put sauce on. Then serve it  to the person. DONE!! :)
